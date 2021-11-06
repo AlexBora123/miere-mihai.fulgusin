@@ -1,2 +1,0 @@
-# miere-mihai.fulgusin
-miere
